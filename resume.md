@@ -8,13 +8,12 @@ ryvanarnandhaputra@yahoo.co.id
 - - -
 ## Institut Pertanian Bogor — SKom
 Juli 2017 – sekarang
-Institut Pertanian Bogor — SKomp
 ## SMA Negeri 1 Lemahabang
-Juli 2014 – mei 2017
+Juli 2014 – Mei 2017
 ## SMP Negeri 1 Karangsembung
-mei 2011 - Juni 2014
+Mei 2011 - Juni 2014
 ## SD Negeri 1 Cipeujeuh WEtan
-april 2005 - mei 2011
+April 2005 - Mei 2011
 # Pelatihan
 - - -
 - Microsoft Office — Specialist (Excel dan Powerpoint 2010)
